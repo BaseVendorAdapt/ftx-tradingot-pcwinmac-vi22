@@ -1,4 +1,4 @@
-# 
+# Free ftx trading bot extensions for Mac OS | Updated ftx trading bot extensions for PC Windows. Featuring token swaps and trend following — optimized for maximum performance on every platform.
 
 
 
